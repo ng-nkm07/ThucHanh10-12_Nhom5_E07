@@ -8,3 +8,5 @@ B2508365 Lý Bội Ngọc
 B2508366 Trần Bảo Ngọc
 
 B2508364 Huỳnh Trọng Nghĩa
+
+Link video minh họa: https://www.youtube.com/watch?feature=shared&v=OKaPnY229PM
